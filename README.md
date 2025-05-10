@@ -1,4 +1,4 @@
-# HUMAN-RESOURCES-SEVIERVILLE-TENNESSEE-https://21ninety.com/skylar-diggins-husband_https://hms.harvard.edu/news/risks-artificial-intelligence-weapons-design_https://www.gillettemotel.com/https://hms.harvard.edu/news/risks-artificial-intelligence-weapons-design
+# HUMAN-RESOURCES-SEVIERVILLE-TENNESSEE-https://www.tn.gov/tbi/employment.html_https://www.tn.gov/tbi/divisions.html_https://www.tn.gov/tbi/divisions/criminal-investigation-division.html_https://sor.tbi.tn.gov/home_https://www.tn.gov/tbi/divisions/cjis-division/background-checks.html_https://21ninety.com/skylar-diggins-husband_https://hms.harvard.edu/news/risks-artificial-intelligence-weapons-design_https://www.gillettemotel.com/https://hms.harvard.edu/news/risks-artificial-intelligence-weapons-design
 MTAS TN HIGHWAY PATROL TN TREASURY DEPARTMENT TWRA
 https://www.healthgrades.com/
 https://www.tcl.com/us/en
